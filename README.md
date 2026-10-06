@@ -1,0 +1,2 @@
+# premium-faux-stone-001-faux-stone-casting-pigment-l
+Stop losing track of your unique pigment blends and layer sequences — turn chaos into a repeatable masterpiece with a dedicated studio.  This Notion template solves the pain of managing complex faux stone casting processes by providing a structured workflow for documenting pigment recipes, layer orders, and project timelines. Unlike generic project
